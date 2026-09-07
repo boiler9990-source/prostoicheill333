@@ -1,2 +1,2 @@
 # prostoicheill333
-круто
+крутo
